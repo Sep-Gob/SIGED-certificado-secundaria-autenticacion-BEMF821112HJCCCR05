@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-BEMF821112HJCCCR05
+BEMF821112HJCCCR05
